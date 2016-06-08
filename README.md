@@ -5,4 +5,4 @@
 5. Open index.html
 
 
-[psd template](https://drive.google.com/folderview?id=0B9XFQLfT7zXAckY2cUVISmRGOHM&usp=sharing) 
+[psd template](https://drive.google.com/folderview?id=0B9XFQLfT7zXAckY2cUVISmRGOHM&usp=sharing) "# 4-7" 
